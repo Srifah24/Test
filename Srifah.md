@@ -1,1 +1,2 @@
 # แนะนำตัว
+![240369193_582177452971837_5330473322459386775_n](https://user-images.githubusercontent.com/88130626/132084236-b61a6b6e-98ff-4a53-8d59-a7e44aaa68a8.jpg)
